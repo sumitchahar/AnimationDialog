@@ -1,0 +1,6 @@
+![page1](https://github.com/sumitchahar/AnimationDialog/assets/19342930/001a9f05-1f65-48cd-b539-857caa3c4056)
+![page6](https://github.com/sumitchahar/AnimationDialog/assets/19342930/2bb2f1bb-e755-4cd7-9088-8ecb67c9bc93)
+![page5](https://github.com/sumitchahar/AnimationDialog/assets/19342930/5d0917fb-f941-40f3-a4d6-dc0e138b4343)
+![page4](https://github.com/sumitchahar/AnimationDialog/assets/19342930/1d8c9b6b-534e-4398-9c70-1292ea871f09)
+![page3](https://github.com/sumitchahar/AnimationDialog/assets/19342930/6bd9d06f-a83d-4c5b-b535-81626efe5677)
+![page2](https://github.com/sumitchahar/AnimationDialog/assets/19342930/52bfce61-cf1e-42ee-9982-5db36b08ea6c)
